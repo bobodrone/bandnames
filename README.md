@@ -1,4 +1,4 @@
 # bandnames
 
-* Skråmåla punkorkester
+* Skråmåla kyrkoråd
 * 
